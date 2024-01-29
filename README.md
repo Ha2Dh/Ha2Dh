@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @HarDh
 - 👀 I’m interested in everything I love. 
-- 🌱 I’m currently learning how to life. 
+- 🌱 I’m currently learning how to life properly. 
 - 💞️ I’m looking to collaborate and fight on change the world.
 - 📫 hardhr@outlook.com is one of my E-mail's. 
 - 😄 Pronouns: ntahlah
