@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @HarDh
+- 👋 Hi, you can call me @HarDh
 - 👀 I’m interested in everything I love. 
 - 🌱 I’m currently learning how to life properly. 
 - 💞️ I’m looking to collaborate and fight on change the world.
